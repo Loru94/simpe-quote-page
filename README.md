@@ -1,0 +1,1 @@
+# simpe-quote-page
